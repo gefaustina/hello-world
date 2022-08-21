@@ -16,9 +16,9 @@ no matter how many times I fail.
 
 I am hardworking because I juggled and excelled between school,
 work and Church activities all at the same time.
-so,
+So,
 I can work under pressure and still deliver quality.
-I am creative because as some from a non luxurious background,
+I am creative because as someone from a non luxurious background,
 I always try to be innovative and come up with ideas that will help me achieve certain milestones in my career.
 I am willing,
 because I still don't know everything.
